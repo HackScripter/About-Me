@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @hunterXnotdefine
+- 👀 I’m interested in Ethical hacker
+- 🌱 I’m currently learning b.tech
